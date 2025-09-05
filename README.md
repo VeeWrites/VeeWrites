@@ -1,6 +1,6 @@
 # Hello, I'm Vee 
 
-### Content Strategist & Storyteller in the Bitcoin Space
+### Content Strategist & Storyteller
 
 I translate complex ideas into compelling narratives. I'm also passionate about breaking down bitcoin to normies.
 
