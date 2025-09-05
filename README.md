@@ -6,7 +6,7 @@ I translate complex ideas into compelling narratives. I'm also passionate about 
 
 - 🔭 **Currently exploring:** The intersection of AI and creative storytelling.
 - 🌱 **Currently learning:** The fundamentals of Web3 to better evangelize and to collaborate with devs.
-- 📫 **How to reach me:** VwwWrightConsultingllc@gmail.com
+- 📫 **How to reach me:** VeeWrightConsultingllc@gmail.com
 - 😄 **My Superpower:** Translating complex tech concepts into clear, compelling narratives.
 
 ### My Work & Presence
