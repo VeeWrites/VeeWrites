@@ -5,7 +5,7 @@
 I translate complex ideas into compelling narratives. I'm also passionate about breaking down bitcoin to normies.
 
 - 🔭 **Currently exploring:** The intersection of AI and creative storytelling.
-- 🌱 **Currently learning:** The fundamentals of Web3 to better evangelize and collaborate with engineers.
+- 🌱 **Currently learning:** The fundamentals of Web3 to better evangelize and to collaborate with devs.
 - 📫 **How to reach me:** vwwwrightconsultingllc@gmail.com
 - 😄 **My Superpower:** Translating complex tech concepts into clear, compelling narratives.
 
