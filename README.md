@@ -11,7 +11,7 @@ I translate complex ideas into compelling narratives and conjure large-scale exp
 ### My Work & Presence
 
 - 🎥 **Bitcoin YouTube Series (Episodes 31 to 40):** https://www.youtube.com/@VWC-FINANCE
-- 🐦 **Bitcoin Maxi on X:** Sharing alpha for normies. [@llc_vee](https://x.com/llc_vee)
+- 🐦 **Bitcoin Maxi on X:** Sharing alpha for normies and generally evngelizing. [@llc_vee](https://x.com/llc_vee)
 - 🚂 **Historic Event Production:** Producing & promoting the 100th anniversary commemoration of a major railroad disaster. [Read the Case Study](http://bit.ly/3HGhvV9)
 
 ### Superpowers
