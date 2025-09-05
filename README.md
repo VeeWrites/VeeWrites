@@ -12,7 +12,7 @@ I translate complex ideas into compelling narratives. I'm also passionate about 
 ### My Work & Presence
 
 - 🎥 **Bitcoin YouTube Series (Episodes 31 to 40):** https://www.youtube.com/@VWC-FINANCE
-- 🐦 **Bitcoin-only X/Twitter:** https://x.com/llc_vee
+- 🐦 **Bitcoin-maxi on X/Twitter:** https://x.com/llc_vee
 
 ### Guiding Principle
 
