@@ -12,7 +12,7 @@ I translate complex ideas into compelling narratives and conjure experiences fro
 
 - 🎥 **Bitcoin YouTube Series (Episodes 31 to 40):** https://www.youtube.com/@VWC-FINANCE
 - 🐦 **Bitcoin-maxi on X/Twitter:** https://x.com/llc_vee
-- 🐦 **100th Anniverary Commemoration of the Church Hill Tunnel Collapse:** https://x.com/llc_vee
+- 🐦 **100th Anniverary Commemoration of the Church Hill Tunnel Collapse:** http://bit.ly/3HGhvV9
 
 
 ### Superpowers
